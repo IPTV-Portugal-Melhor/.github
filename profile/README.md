@@ -1,4 +1,9 @@
 # IPTV Portugal: A Revolução do Entretenimento Digital em Casa
+
+# 👉 [Assine Já IPTV](https://pt.iptvportugal.pt/)
+
+# 👉 [Assine Já IPTV](https://pt.iptvportugal.pt/)
+
 ## O que é IPTV Portugal?
 O IPTV Portugal é uma tecnologia inovadora que permite assistir televisão através da internet, em vez dos métodos tradicionais como satélite ou cabo. IPTV significa “Internet Protocol Television” e tem vindo a ganhar popularidade em Portugal, oferecendo uma alternativa mais económica, flexível e com maior variedade de canais nacionais e internacionais.
 
